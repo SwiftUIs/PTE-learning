@@ -1,5 +1,6 @@
 # PTE-learning
 
+https://alfapte.com/v1/practice/writing/summarize-written-text
 
 ![IMG_7382](https://github.com/user-attachments/assets/4318ee70-2472-48f1-a3bd-990d398531ba)
 
