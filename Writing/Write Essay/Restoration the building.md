@@ -1,0 +1,9 @@
+In recent years, an increasing number of countries have allocated substantial financial resources to the restoration of historical buildings rather than investing in modern housing. While preserving cultural heritage is undoubtedly important, I largely disagree with the idea that such spending should take precedence over developing contemporary housing.
+
+On the one hand, restoring historical buildings plays a vital role in protecting a nation’s cultural identity. These structures reflect the history, traditions, and architectural achievements of a country, attracting tourists and contributing to economic growth. For instance, many European cities have benefited significantly from tourism due to their well-preserved historic sites. Therefore, government investment in restoration can generate long-term cultural and financial returns.
+
+On the other hand, prioritizing restoration over modern housing may lead to serious social issues, particularly in rapidly urbanizing areas. With growing populations, the demand for affordable and functional housing is increasing. If governments focus too heavily on restoration projects, they may neglect the urgent need to provide adequate living conditions for citizens. This can result in housing shortages, rising property prices, and declining living standards for lower- and middle-income groups.
+
+From my perspective, a balanced approach is essential. Governments should allocate funds wisely by preserving key historical landmarks while also ensuring sufficient investment in modern housing development. In this way, countries can both protect their cultural heritage and meet the practical needs of their populations.
+
+In conclusion, although restoring historical buildings is valuable, it should not come at the expense of modern housing. A balanced investment strategy is the most effective way to achieve sustainable social and economic development.
